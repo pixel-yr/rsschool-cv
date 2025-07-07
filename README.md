@@ -1,1 +1,1 @@
-https://pixel-yr.github.io/rsschool-cv/cv
+https://Pixel-yr.github.io/rsschool-cv/
